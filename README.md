@@ -28,6 +28,7 @@
 
 # 2\. Quy trình hỏa táng lấy xương gồm mấy bước?
 
+Xem thêm: https://maitanggiangtho.vn/quy-trinh-hoa-tang-lay-xuong/
 # Quy trình này được thực hiện theo chuẩn của các cơ sở hỏa táng và thường bao gồm các bước chính sau:
 
 # 
